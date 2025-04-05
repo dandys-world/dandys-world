@@ -1,2 +1,3 @@
-![Screenshot 2024-12-17 001511](https://github.com/user-attachments/assets/5a305679-e78c-493f-ad88-4b792bc2a184)
-![Help](https://github.com/user-attachments/assets/62c1cf29-0ffe-4c2e-8521-e52da4838757)
+
+
+![Screenshot 2024-11-03 194533](https://github.com/user-attachments/assets/e322a34a-c2a7-4aaa-9f36-50d4edf832c9)
